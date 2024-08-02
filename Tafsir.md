@@ -1,4 +1,6 @@
+**Bismillahi Ar-Rahman-Ur-Rahim**
+
 # Surah Fatiha
+
 ## Intro:
 
-**Bismillahi Ar-Rahman-Ur-Rahim**
